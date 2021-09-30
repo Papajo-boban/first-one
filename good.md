@@ -59,3 +59,10 @@ Ameno dom
 Dori me reo, ameno
 Ameno dori me
 Ameno, ameno dori me
+
+
+
+
+
+
+if you read this, know this is from the local
