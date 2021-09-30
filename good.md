@@ -66,3 +66,11 @@ Ameno, ameno dori me
 
 
 if you read this, know this is from the local
+
+
+
+
+
+ REMOTE
+
+if you see both, you are good to go
